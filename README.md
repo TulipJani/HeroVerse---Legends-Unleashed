@@ -1,1 +1,1 @@
-# HeroVerse---Legends-Unleashed
+# HeroVerse - Legends-Unleashed
